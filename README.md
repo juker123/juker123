@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @juker123
-- 👀 I’m interested in ...roblox
+- 👀 I’m interested in ...nunyuh
 - 🌱 I’m currently learning ...stuff
 - 💞️ I’m looking to collaborate on ...nothing
 - 📫 How to reach me ...dont
